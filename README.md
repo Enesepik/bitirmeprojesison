@@ -1,0 +1,2 @@
+# bitirmeprojesison
+ bitirmeprojesi
